@@ -72,4 +72,4 @@ Join us to become part of a vibrant community of bitcoiners. Let's master Bitcoi
 
 ## Contact
 
-For any queries, please contact [info@bitcoinindonesia.xyz).
+For any queries, please contact info@bitcoinindonesia.xyz
